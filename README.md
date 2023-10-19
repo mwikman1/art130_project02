@@ -1,1 +1,1 @@
-# art130_project02
+# wikman_megan_art130_project02
